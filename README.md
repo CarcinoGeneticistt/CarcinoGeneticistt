@@ -20,7 +20,7 @@ KARKAT VANTAS - ⛓
 ASK FOR AGE ✦ MALE ✦ I DONT CARE ABOUT SHIPS.
 
 <p align="center">
-| <a href=https://carcinogeneticist.atabook.org>ATABOOK.</a>    ✦     <a href=https://carcinogeneticist.atabook.org](https://carcinogeneticisstt.straw.page>STRAWPAGE.</a> |
+| <a href="https://carcinogeneticist.atabook.org/">ATABOOK.</a>    ✦     <a href="https://carcinogeneticist.atabook.org](https://carcinogeneticisstt.straw.page/">STRAWPAGE.</a> |
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b5bp6fapsnu7kgfi2i6g5ziooa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
