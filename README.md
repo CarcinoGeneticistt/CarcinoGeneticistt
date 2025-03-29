@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/58b56a28653b3e4c6a14c8a460ed0be5/72d1918d063db0ca-84/s1280x1920/032089c1863dc18159898a85d54bf4d7866ffd78.pnj)
 
 <p align="center">
-"BITCHES LOVE ME 'CAUSE THEY KNOW THAT I CAN ROCK. BITCHES LOVE ME 'CAUSE THEY KNOW THAT I CAN RHYME."
+<a href=https://open.spotify.com/track/7wwLxmUVLCfySaJ0fdyelI>"BITCHES LOVE ME 'CAUSE THEY KNOW THAT I CAN ROCK. BITCHES LOVE ME 'CAUSE THEY KNOW THAT I CAN RHYME."</a>
 
 <p align="center">
   <img src=https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExNWV1aTV2M3NiaG83NmtqZHltaWI5Y2IyOGo1d3k3NmdzcTVnaWZpMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/OvAy0pFUDR6otZCLMA/giphy.gif>
@@ -10,7 +10,7 @@
 ![](https://komarev.com/ghpvc/?username=CarcinoGeneticistt&color=8b0000&label=♡&style=plastic)
 
 <p align="center">
-"BITCHES LOVE ME 'CAUSE THEY KNOW THAT I CAN FUCK. BITCHES LOVE ME 'CAUSE THEY KNOW THAT I'M ON TIME."
+<a href=https://open.spotify.com/track/7wwLxmUVLCfySaJ0fdyelI>"BITCHES LOVE ME 'CAUSE THEY KNOW THAT I CAN FUCK. BITCHES LOVE ME 'CAUSE THEY KNOW THAT I'M ON TIME."</a>
 
 ![](https://64.media.tumblr.com/58b56a28653b3e4c6a14c8a460ed0be5/72d1918d063db0ca-84/s1280x1920/032089c1863dc18159898a85d54bf4d7866ffd78.pnj)
 
