@@ -20,9 +20,6 @@ KARKAT VANTAS - ⛓
 <p align="center">
 ASK FOR AGE ✦ MALE ✦ I DONT CARE ABOUT SHIPS.
 
-<p align="center">
-MAKING SOCIALS SOON.
-
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b5bp6fapsnu7kgfi2i6g5ziooa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![](https://64.media.tumblr.com/87c559d6ca3e07bd36ceef06e782359a/9294d7b9028c2d81-3b/s2048x3072/38341c85441de804a977aab27dfef6b67f982fb2.pnj)
