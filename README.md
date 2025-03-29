@@ -18,7 +18,7 @@
 KARKAT VANTAS - ⛓
 
 <p align="center">
-ASK FOR AGE / MALE
+ASK FOR AGE ✦ MALE ✦ I DONT CARE ABOUT SHIPS.
 
 <p align="center">
 MAKING SOCIALS SOON.
