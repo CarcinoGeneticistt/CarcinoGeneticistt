@@ -5,7 +5,6 @@
 
 <p align="center">
   <img src=https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExNWV1aTV2M3NiaG83NmtqZHltaWI5Y2IyOGo1d3k3NmdzcTVnaWZpMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/OvAy0pFUDR6otZCLMA/giphy.gif>
-</p>
 
 ![](https://komarev.com/ghpvc/?username=CarcinoGeneticistt&color=8b0000&label=♡&style=plastic)
 
